@@ -38,7 +38,7 @@ I’m passionate about building tools, breaking systems (ethically), and securin
 
 ---
 
-### 📫 Connect with Me
+### 📫 Let’s Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/lucky-shedrack)  
 - 📧 Email: luckyshedrack73@gmail.com  
 
